@@ -82,6 +82,4 @@ If you have questions about these Terms of Service, please contact us at:
 
 **Email:** cmb211087@gmail.com
 
----
-
 By using VoiceFlow Journal, you acknowledge that you have read, understood, and agree to be bound by these Terms of Service.
